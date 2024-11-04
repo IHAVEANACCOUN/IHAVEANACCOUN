@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IHAVEANACCOUN
 - 👀 I’m interested in Scratch Coding
-- 🌱 I’m currently Banned 😢
+- 🌱 I’m currently Banned from Scratch😢
 - ⚡ Fun fact: I like to be called KIDster
 
 <!---
